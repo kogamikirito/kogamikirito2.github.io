@@ -1,0 +1,1 @@
+# kogamikirito2.github.io
